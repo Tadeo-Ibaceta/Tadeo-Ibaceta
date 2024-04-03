@@ -5,5 +5,5 @@
 * ### Tambien me gusta la **programación** pero aún estoy aprendiendo.
 * ### En mi tiempo libre me gusta jugar *fulbo*, soy el 9 y *goleador* del equipo.
 * ### *Mi instagram es @tadeooibaceta.*
- ![](https://i2.wp.com/68.media.tumblr.com/f05cfeb484bdfc6fc5730f3b45acbb48/tumblr_oqc8plRaYu1tf8a5ao1_500.gif?w/u003d747)
+ ![](https://static.footballtransfers.com/images/cn/image/upload/q_75,w_750,h_422,ar_750.421/footballcritic/yyezlfjyawgx28qgticn.webp)
 
