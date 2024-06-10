@@ -1,5 +1,5 @@
 # Holaaa
-## Mi nombre es _***Tadeo Ibaceta***_, tengo 17 años y soy de 7°1°.
+## Mi nombre es _***Tadeo Ibaceta***_, tengo 18 años y soy de 7°1°.
 * ### Me gusta mucho el futbol y soy de **river**. 
 
 * ### Tambien me gusta la **programación** pero aún estoy aprendiendo.
